@@ -13,7 +13,7 @@
 - 📫 IG/Twitter: @abena_praba 
 - 😄 Pronouns: She/Her
 - ⚡ Previous: 
-    1. GitHub
+    1. GitHub 
     2. Black Girls CODE
     3. Sesame Flyers International
     4. Department of Education
