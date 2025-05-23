@@ -9,7 +9,7 @@
 - :computer: In LOVE building open source communities. We Make the World Go Round ! <3 
 <blockquote class="twitter-tweet"><p lang="en" dir="ltr">Open Source Communities in Ghana 🇬🇭 &amp; Nigeria 🇳🇬 &gt;&gt;&gt;  <a href="https://t.co/gJjGGMyjsS">pic.twitter.com/gJjGGMyjsS</a></p>&mdash; Abena (@abena_praba) <a href="https://twitter.com/abena_praba/status/1520369748965564416?ref_src=twsrc%5Etfw">April 30, 2022</a></blockquote> 
 
-- 🤖 Building Developers & Amplifying AI, [Design|PxD](https://www.designpxd.com/)
+- 🤖 Building a network of Developers, Designers & Dreamers through [Design|PxD](https://www.designpxd.com/)
 - 💬 Ask me about my nonprofit, [Tender Mercy Care Foundation](https://www.tendermercycare.com/)
 - 📫 IG/Twitter: @abena_praba 
 - 😄 Pronouns: She/Her
